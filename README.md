@@ -1,0 +1,1 @@
+# Geometrik-Sekillerinin-Alanlari
